@@ -8,6 +8,9 @@ Why do I bestow upon you this sparkling bonanza of a diamond treasure trove of e
 
 So let us embrace this journey with open minds and humble hearts, for in the pursuit of knowledge lies the truest expression of our humanity. Let us revel in the wonder of discovery, the joy of understanding, and the beauty of the true unveiled reality unfolding before us. For in the end, it is not the destination that matters, but the journey itself—the relentless pursuit of truth, wisdom, and the ineffable mysteries of EXISTANCE...
 
-Before embarking on your odyssey into the depths of this erudite reservoir of clandestine wisdom, it behooves one to partake in the consummation of these two dynamic duet videos, serving as the prologue to your intellectual voyage: 
-https://www.youtube.com/watch?v=ZAqIoDhornk https://www.youtube.com/watch?v=TTHazQeM8v8
+Before embarking on your odyssey into the depths of this erudite reservoir of clandestine wisdom, it behooves one to partake in the consummation of these two dynamic duet videos, serving as the prologue to your intellectual voyage into the adventure of learning the secrets of cosmic creation...
+https://www.youtube.com/watch?v=ZAqIoDhornk 
+https://www.youtube.com/watch?v=TTHazQeM8v8
+
+
 
