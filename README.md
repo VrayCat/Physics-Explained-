@@ -1,4 +1,4 @@
-# Physics-Explained! 🌌⚛️🧪♾️-
+# Physics-Explained! 🌌⚛️🧪♾️
 Behold, my grand magnum opus compendium of paradigm quintessential erudite omniscient wisdom and knowledge that transcends the omniverse! Ascending beyond the zenith of the foundations, laws, and the intricate tapestry of physics that holds all of creation in equilibrium, weaving together the threads of Classical Mechanics, Thermodynamics, Electromagnetism, Nuclear Physics, The Theory Of Relativity, Quantum Mechanics, Astrophysics, and a plethora of other esoteric miscellaneous concepts. 
 
 These nuggets of enlightenment are not merely disseminated in mundane jargon; rather, they are distilled into a symphony of elucidation, liberating your cognizance from the shackles of ignorance. Join me on this odyssey of enlightenment as we traverse the vast expanse of knowledge! 
